@@ -42,13 +42,13 @@ Host it to surprise your friends
 
 🚫 You may not:
 
-Sell or redistribute without permission
+Sell or redistribute without permission, you can definitely do changes and contribute to open source!
 Claim it as your own
 
 
 📧 Use only with permission of Naboraj Sarkar
 Email: nishant.ns.business@gmail.com for inquiries.
-Website: nsgamming.xyz
+Website: naborajs.me
 Youtube: @Nisahat_sarkar
-X: @NSGAMMING699
+X: @ItsNaborajs
 Telegram: @Nishantsarkar10k
